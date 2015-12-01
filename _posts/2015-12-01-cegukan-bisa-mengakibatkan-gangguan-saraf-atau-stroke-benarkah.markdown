@@ -32,4 +32,4 @@ Jadi, cegukan disertai nyeri dada dan beberapa faktor peningkat risiko lainnya k
 7. Bernapas di dalam kantung yang terbuat dari kertas
 8. Menelan gula pasir
 
-Periksakan cegukan yang Anda alami di <a href="www.bethsaidahospitals.com">rumah sakit Tangerang</a> atau terdekat di kota Anda jika disertai nyeri dada dan tidak membaik dalam waktu 48 jam.
+Periksakan cegukan yang Anda alami di <a href="http://www.bethsaidahospitals.com">rumah sakit Tangerang</a> atau terdekat di kota Anda jika disertai nyeri dada dan tidak membaik dalam waktu 48 jam.
