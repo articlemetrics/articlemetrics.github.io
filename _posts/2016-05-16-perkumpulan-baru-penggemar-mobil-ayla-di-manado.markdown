@@ -9,6 +9,8 @@ Memiliki mobil mungkin menjadi pengalaman paling indah dalam kehidupan anda. Bag
 
 Perkumpulan mobil murah Daihatsu Ayla Indonesia bagian Manado awalannya terbentuk dari hoby berkendara city car tiga teman dekat, Revly Lizard, Alfons Lembang, serta Kennedy Kawengian. Pada 25 Oktober 2014 mereka mendeklarasikan terbentuknya komune itu sesudah anggota makin bertambah. 
 
+Selain mobil Daihatsu Ayla, <a href="https://trello.com/c/jskvCqFH/5-mobil-bmw-dirakit-lokal-masih-belum-bisa-murah">BMW juga produksi mobil murah</a> yang entah apakah mereka bisa memasuki persaingan atau tidak. Kita ketahui bersama bahwa BMW adalah perusahaan mobil dengan pasar kelas atas. 
+
 Saat ini telah ada 40 anggota aktif. Untuk berkumpul atau 'kopdar' (kopi darat) dijadwalkan ke tempat tinggal tiap-tiap anggota dengan cara bergilir. Beberapa anggota berkumpul, nikmati saat berbarengan pada Jumat di Tribun Lounge. Tidak sebatas kopdar, pertemuan itu untuk berdiskusi berkaitan program-program yang bakal dikerjakan. 
 
 Memanglah jumlahnya tidak banyak, mengingat tidak sedikit anggotanya yang repot dengan pekerjaan serta masalah semasing. Pertemuan-pertemuan yang lain juga demikian. 
