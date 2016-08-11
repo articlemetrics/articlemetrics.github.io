@@ -1,0 +1,17 @@
+---
+published: true
+title: Mau Hemat? Pilih Daihatsu Sigra
+layout: post
+permalink: hemat-daihatsu-sigra
+---
+Dapat terdapat banyak sekali mobil baru yg di jual di th. 2017, serta diantara satu yg paling dinantikan kemunculannya merupakan mobil LCGC tujuh penumpang buatan Daihatsu yakni “Daihatsu Sigra”. Mobil ini dikabarkan dapat dikenalkan pada bln. Agustus lain kesempatan, atau lebih tepatnya pada arena pamera otomotif GIIAS 2016 (Gaikindo Indonesia International Auto Show). Kemunculannya sangat dinantikan, serta dikehendaki bisa beradu melawan Datsun Go+ yg lebih dahulu di jual sebagai mobil LCGC tujuh penumpang. 
+<a href="http://articlemetrics.github.io/daihatsu-sigra"><img src="http://daihatsu.co.id/images/tipex.png"></a>
+Daihatsu Sigra tak lagi sendirian, dikarenakan mobil ini dapat miliki saudara kembar yg dibuat oleh Toyota, yakni Toyota Calya. Keduanya miliki spesifikasi mesin serta rancangan nyaris sama, akan tetapi harga keduanya dapat tidak serupa. Yah, hal mirip juga di alami oleh Ayla serta Agya yg saling berstatus sebagai mobil termurah di Indonesia. Buat teman dekat otomotif yg penasaran mau paham bocoran spesifikasi serta feature mobil LCGC tujuh penumpang ini, silakan teman dekat simak review Spesifikasi serta Harga Daihatsu Sigra yg kami rangkai dibawah berikut ini. 
+
+Daihatsu Sigra siap menantang Datsun Go+ serta beradu melawan kawan sepantarannya, yakni Toyota Calya. Yah, sesuai sama duwit Ayla-Agya, mobil ini di buat dengan basis mesin serta rancangan gak tidak serupa jauh dari Toyota Calya. Akan tetapi utk sisi harga, kebanyakan harga mobil Daihatsu dibandrol lebih murah ketimbang mobil buatan Toyota. Jadi peluang harga Daihatsu Sigra dapat dibandrol sangatlah terjangkau, maka jadi diantara satu pemecahan buat costumer tanah air yg mencari mobil murah yg bisa berisi tujuh orang penumpang. 
+
+Menyaksikan bocoran yg mengedar, mobil ini dapat miliki tampang luar sporty serta ukuran bodi yg panjang. Pasalnya mobil ini miliki tiga baris kursi yg bisa menyimpan sampai tujuh orang penumpang sekalian. Itu mempunyai arti, Daihatsu Sigra dapat beradu melawan Datsun Go+ yg lebih dahulu tawarkan feature mirip di segmen mobil MPV Low Cost Green Car (LCGC). Yah, Daihatsu Sigra dikabarkan dapat jadi diantara satu mobil LCGC terkini di Indonesia, maka automatic harga jualnya dapat dibandrol sangatlah murah. 
+
+Hadirnya Daihatsu Sigra bahkan juga berhembus kencang hingga mancanegara. Bahkan juga kabar yg kami lansir dari indianautosblog. com menunjukkan tiga model Daihatsu Sigra yg di jual di Indonesia. Di mana seluruhnya dibandrol dengan harga sangatlah murah, dna dapat beradu melawan mobil LCGC yg sejauh ini beredara, seperti Datsun Go+, Honda Brio, Toyota Agya, serta Daihatsu Ayla. Keseluruhan seluruh dapat ada 4 model tidak serupa, yakni Sigra D, Sigra M, Sigra X, serta Sigra R. Tidak hanya itu, ada juga pilihan transmisi manual dan matic. 
+
+Utk model termurah, yakni Daihatsu Sigra D serta Sigra M dapat miliki mesin berkapasitas lebih kecil, ialah mengambil mesin 1. 0Liter yg dikombinasikan dengan transmisi manual. Dan utk model Sigra X, serta Sigra R dapat mengusung mesin 1. 2 Liter dengan pilihan transmisi manual serta matic yg automatic dapat pengaruhi harga Datsun Sigra tiap tiap tipenya. Akan tetapi teman dekat gak butuh risau bab harga, dikarenakan harga Daihatsu Sigra dapat dibandrol dimulai dari 109 Jutaan hingga Rp. 136 Jutaan.
