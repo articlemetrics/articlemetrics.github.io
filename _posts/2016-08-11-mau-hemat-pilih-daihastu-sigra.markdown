@@ -2,6 +2,7 @@
 published: true
 title: Mau Hemat, Pilih Daihastu Sigra!
 layout: post
+permalink: mau-hemat-daihatsu-sigra
 ---
 Dapat terdapat banyak sekali mobil baru yg di jual di th. 2017, serta diantara satu yg paling dinantikan kemunculannya merupakan mobil LCGC tujuh penumpang buatan Daihatsu yakni “Daihatsu Sigra”. Mobil ini dikabarkan dapat dikenalkan pada bln. Agustus lain kesempatan, atau lebih tepatnya pada arena pamera otomotif GIIAS 2016 (Gaikindo Indonesia International Auto Show). Kemunculannya sangat dinantikan, serta dikehendaki bisa beradu melawan Datsun Go+ yg lebih dahulu di jual sebagai mobil LCGC tujuh penumpang. 
 <a href="http://articlemetrics.github.io/daihatsu-sigra"><img src="http://daihatsu.co.id/images/tipex.png"></a>
