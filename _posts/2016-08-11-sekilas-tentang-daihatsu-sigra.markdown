@@ -2,10 +2,12 @@
 published: true
 title: Sekilas Tentang Daihatsu Sigra
 layout: post
+categories: [mobil]
+permalink: daihatsu-sigra
 ---
-<center><img src="http://daihatsu.co.id/images/rdeluxe.png"></center>
-
 Daihatsu Sigra merupakan salah satu mobil Low Cost Green Car (LCGC) yang sudah dirilis bulan Agustus ini. Kehadiaran Daihatsu Sigra ini memang sudah lama dinantikan untuk menyaingi lawannya Datsun Go+yang terlebih dulu dipasarkan sebagai salah satu mobil LCGC. Tampilan Daihatsu Sigra ini tidak sendirian dalam menyaingi Datsun Go+. Pasalnya Toyota juga merilis mobil LCGC di saat yang bersamaan, yaitu Toyota Cayla. Spesifikasi Daihatsu Sigra maupun Toyota Cayla hampir sama, namun tentu saja seperti biasanya memiliki harga yang berbeda. Toyota Cayla harganya lebih mahal daripada Daihatsu Sigra. Daihatsu Sigra dipasarkan dengan harga berkisar antara 106 juta hingga 149 juta rupiah. Sedangkan Toyota Cayla dibandrol dengan harga sekitar 129 juta hingga 150 juta rupiah.
+
+<center><img src="http://daihatsu.co.id/images/rdeluxe.png"></center>
 
 Meskipun harga <a href="http://daihatsu.co.id/product/sigra">Daihatsu Sigra</a> ini dibilang relatif murah, namun mobil LCGC ini tetap memiliki interior yang mewah dan kabin yang luas. Daihatsu Sigra telah dilengkapi dengan dual airbags yang siap menjaga kamu dari keselamatan berkendara. Mobil ini juga dilengkapi dengan sistem audio dan AC. Selain itu untuk tipe tertinggi, sudah dilengkapi oleh konektivitas bluetooth.
 
