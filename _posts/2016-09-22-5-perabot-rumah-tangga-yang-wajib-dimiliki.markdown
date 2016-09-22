@@ -5,6 +5,7 @@ layout: post
 ---
 Setelah menikah dan tinggal bersama pasangan tentu saja mengisi rumah adalah hal yang wajib. Apalagi para perempuan biasanya suka sekali dengan kegiatan ini. Berikut adalah lima perabot rumah tangga yang wajib dimiliki.
 
+<center><img src="https://hargahot.com/blog/wp-content/uploads/2016/01/Kompor-gas.jpg"></center>
 
 1. Kompor
 Setelah tidak lagi hidup sendiri, memasak menjadi hal yang wajib. Sehingga kompor adalah perabot yang harus kamu miliki. Ada bermacam-macam jenis kompor yaitu, kompor induksi, kompor listrik dan kompor gas. Kompor yang paling lumrah digunakan untuk rumah tangga adalah kompor gas. Selain karena harganya lebih murah kompor ini lebih ideal untuk keperluan masak-memasak. Kamu bisa memilih kompor yang sesuai dengan kebutuhan.
@@ -21,4 +22,4 @@ Selain memikirkan masalah dapur, salah satu yang tidak kalah penting adalah memi
 5. Tempat Tidur
 Memiliki rumah yang nyaman tentu kurang lengkap jika tidak memiliki tempat tidur yang nyaman ditiduri. Kamu dapat memilih tempat tidur dari spons atau pun model spring bed. Keduanya sama-sama menwarkan kenyamanan bagi penggunannya.
 
-
+Kamu juga bisa menemukan <a href="https://www.ruparupa.com/elektronik-dan-gadget/peralatan-rumah-tangga.html">penawaran peralatan rumah tangga terbaik</a> dengan mengunjungi website RupaRupa. Selamat mencoba :)
