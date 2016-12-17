@@ -1,0 +1,15 @@
+---
+published: true
+title: Daihatsu Himax, Mobil Impian Pedagang
+layout: post
+permalink: himax-idaman-pedagang
+---
+Setiap orang yang baru lulus sekolah pasti ingin langsung bisa bekerja. Apalagi zaman sekarang, anak-anak yang lulus SMA sedang mengalami kebingungan yang sangat hebat. Pasalnya memang jika anak tersebut tidak punya rencana untuk melanjutkan ke jenjang kuliah, tidak ada pilihan lain selain bekerja. Bekerja pun kadang mengenaskan. Anak yang lulusan SMA biasanya hanya bisa menjadi cleaning service saja. Padahal untuk sekelas cleaning service ijazah yang lebih rendah seperti SD dan SMP saja bisa, asal mau bekerja dan tahu caranya bersih-bersih. Tapi itulah dilema negeri yang terkungkung dengan mindset kerja harus ikut orang. Jadinya lapangan pekerjaan sedikit, yang melamar banyak. Akhirnya ya begitu, mau jadi cleaning service saja harus pernah menyelesaikan persamaan diferensial di bangku sekolah.
+
+<img src="http://cdn2.tstatic.net/pekanbaru/foto/bank/images/daihatsu-hi-max_20161111_132351.jpg">
+
+Untuk itu, coba kita berhenti sejenak dari keributan mindset masyarakat kita. Bagaimana pun jika membuat usaha sendiri itu lebih nyaman dari ikut orang lain. Ya, awalnya memang susah, namun ikut orang pun juga sama-sama susah. Berdagang, berjualan dengan modal sendiri itu jauh lebih nyaman. Kamu bisa libur kapan saja. Kamu bisa mengambil untung berapa saja, sesuai yang kamu inginkan. Namun, tentu saja kerjanya lebih keras. Namun, apa kamu tidak mau kerja keras untuk keuntunganmu sendiri? Tentu saja kamu akan kerja keras. Toh untung banyak, kamu sendiri yang kaya. Tidak seperti jika perusahaan tempat kamu kerja untung banyak karena jasamu, sangat jarang kamu mendapat promosi jabatan.
+
+Untuk mendukung ide berdagang ini, kamu harus mencari banyak referensi mengenai dunia dagang. Barang apa saja yang akan kamu jual, kulaknya di mana, apa saja yang harus dipunyai, dan banyak hal-hal lain yang harus kamu ketahui tentang seluk beluk berdagang. Misal kamu ingin jualan sayuran dan buah-buahan, tentu saja kamu membutuhkan mobil untuk mengangkutnya. Ini jika kamu pedangan menengah loh yah. Kalau pedagang eceran kamu tidak akan memikirkan itu. Namun, apa kamu tidak ingin naik kelas menjadi pedagang yang sukses?
+
+Untuk memenuhi kebutuhan itu, kamu sangat butuh dengan Daihatsu Himax. Mobil <a href="http://daihatsu.co.id/product/hi-max">Himax Daihatsu</a> ini adalah mobil impian para pedagang. Dengan Daihatsu Himax ini kamu akan mudah menjalankan usahamu. Mulai dari harga Himax yang murah dan terjangkau hingga body himax yang bisa lewat di gang-gang sempit. Banyak sekali spesifikasi Himax yang memukau dan ini membuat harga Himax menjadi terbilang murah. Harga Himax yang ada di pasaran saat ini sekitar 95 jutaan. Jika dibandingkan dengan mobil pick up lainnya, harga Himax ini sangat bersaing. Itulah mengapa sebabnya Daihatsu Himax ini menjadi mobil jualan impian pedagang.
